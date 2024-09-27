@@ -1,0 +1,65 @@
+---
+title: "my-first-post"
+date: 2024-09-27
+---
+Stars in my eyes, hiking up Griffith
+
+Thinking about who was sad and what didn't
+
+Get said in the Midwest, wish I could tell you now
+
+I wrote you a note, but I didn't send it
+
+'Cause that's the best method the women here taught me about
+
+What you don't really understand
+
+I've got magic in my hand, stars in my eyes
+
+I'm a different kind of woman
+
+If you want some basic bitches, go to the Beverly Center and find he
+
+I'm sweet, bare feet
+
+If you wanna go where nobody goes
+
+That's where you'll find me
+
+In the sweet north country
+
+If I'm not there, come to my house on Genesee
+
+What you doin' with your life? Do you think about it?
+
+Do you contemplate where we came from?
+
+Lately, we've been makin' out a lot
+
+Not talkin' 'bout the stuff that's at the very heart of things
+
+Do you want children? Do you wanna marry me?
+
+Do you wanna run marathons in Long Beach by the sea?
+
+I've got things to do, like nothing at all
+
+I wanna do them with you
+
+Do you wanna do them with me?
+
+If you want someone, then just call me up
+
+And remember where I'll be
+
+Sweet in barefeet
+
+You can find me where no one will be
+
+In the woods somewhere, in the night
+
+In the heart of a valley
+
+In the sweet north country
+
+If I'm not there, come to my house on Genesee
